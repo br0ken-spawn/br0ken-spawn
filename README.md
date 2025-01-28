@@ -15,4 +15,9 @@ hi my name is spawn point..i love my best friend fire ring!
 
 introverted  ₍´˶• . • ⑅ ₎  im not very keen on making new friends..
 
+![image](https://github.com/user-attachments/assets/bbb74896-e587-4956-927a-ab4dfaa5fa7e)
+
+my favourite picture of me and fire ring..
+
+
 
