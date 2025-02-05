@@ -11,7 +11,7 @@
 
 ## in character info
 
-hi my name is spawn point..i love my best friend fire ring!
+hi my name is broken spawn, please just call me spawn though ..i love my best friend fire ring!
 
 introverted  ₍´˶• . • ⑅ ₎  im not very keen on making new friends..
 
